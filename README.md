@@ -48,7 +48,7 @@ In the past decade, I've worked with some trailblazing crypto-related companies 
 
 ### Personal links
 
-[Click here to read my resume](https://alkemyst.online/eric_suzuki_cv_2024_with_portfolio%20(3).pdf)
+[Click here to read my resume](https://alkemyst.online/eric_suzuki_cv_2026.pdf)
 
 [Visit my online portfolio](https://alkemyst.online)
 
